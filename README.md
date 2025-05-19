@@ -2,7 +2,7 @@
 I'm gonna let the world see the kind of man you actually are.
 
 
-This doc is not completed yet. In the meantime you can check these ones out!
+# This doc is not completed yet. In the meantime you can check these ones out!
 
 Made by @cryptictag
 https://mystyyy.github.io/exposure/index.html

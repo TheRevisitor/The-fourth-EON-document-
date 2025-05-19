@@ -12,3 +12,7 @@ https://github.com/Twin1dev/Eon-Document
 
 Made by @vexxwyd
 https://github.com/vexxwyd/Eon-Document-2/issues
+
+
+EON DISCORD INVITE: 
+discord.gg/eonfn  :)

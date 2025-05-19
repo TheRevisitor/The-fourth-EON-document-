@@ -1,2 +1,12 @@
-# The-fourth-EON-document-
-This doc is not completed! check again in some days...
+# FUCK RIO
+
+This doc is not completed yet. In the meantime you can check these ones out!
+
+Made by @cryptictag
+https://mystyyy.github.io/exposure/index.html
+
+Made by @Twin1dev
+https://github.com/Twin1dev/Eon-Document
+
+Made by @vexxwyd
+https://github.com/vexxwyd/Eon-Document-2/issues

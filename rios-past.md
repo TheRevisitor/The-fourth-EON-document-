@@ -4,6 +4,7 @@ Let's start this off with this message right here since it explains most of the 
 
 
 The following have been shown in previous docs but I thought it would be a good idea to include them here.
+==========================================================================================================
 
 Making fun of someone who had cancer in his old server.
 

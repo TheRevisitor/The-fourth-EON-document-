@@ -33,6 +33,9 @@ Murilo spent time making custom weapons for eon but rio decided not to use them 
 
 ![image](https://github.com/user-attachments/assets/57b542d2-72f9-4e62-89b2-88f0d24fb9cd)
 
+![image](https://github.com/user-attachments/assets/aa3435b3-6559-47fb-bdfe-0c5bcabc1885)
+
+
 
 # EGATOR6
 Rio is such a desperate fuck isn't he?

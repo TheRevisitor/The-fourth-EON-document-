@@ -1,7 +1,7 @@
 ![image](https://github.com/user-attachments/assets/8880f199-27ab-49fc-9547-94caf54a280e)
 
 
-Alright, I might be wrong about number one as I was never shown the first part of this conversation.
+Alright, I might be wrong about number one as I was never shown the last part of this conversation.
 
 Moving on!
 # Bengio_10

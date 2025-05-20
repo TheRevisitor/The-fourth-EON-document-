@@ -8,4 +8,10 @@
 
 https://drive.google.com/drive/folders/1vrgYaBmUl3-KWQP8Q1XsrLdnF00ssT_s?usp=sharing
 
+=======================================================================================
+I'll update this if Alby finds the screenshots
+
+![image](https://github.com/user-attachments/assets/3af32ab8-2fde-4c9d-bc53-d9e4c1b04a73)
+
+
 # THIS PAGE IS INCOMPLETE, I AM WORKING ON ADDING MORE.

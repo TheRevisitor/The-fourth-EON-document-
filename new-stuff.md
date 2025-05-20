@@ -4,7 +4,7 @@
 
 (I've got more that will be posted here only if I actually get permission.)
 
-# Rio allowing his staff members to make fun of people in a public vc while also allowing people to cheat in his own project:
+# Rio allowing his staff members to make fun of people in a public vc while also allowing people to cheat in his own project: (credits to @zensterfn)
 
 https://drive.google.com/drive/folders/1vrgYaBmUl3-KWQP8Q1XsrLdnF00ssT_s?usp=sharing
 

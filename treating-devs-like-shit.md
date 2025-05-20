@@ -9,6 +9,7 @@ Here's Rio treating bengio10 (custom weapon modder) like shit
 ![bengio](https://github.com/user-attachments/assets/062e8f2d-4541-4a1f-927c-cd910fe8b3e4)
 
 He swears that the servers crash due to the custom weapons and humiliates bengio infront of the whole server even though it was an issue on his end.
+
 ![bengio](https://github.com/user-attachments/assets/b667e8f6-5084-4273-a9c0-577a612a92ce)
 
 ![bengio2](https://github.com/user-attachments/assets/49d7ea66-67b5-4f63-958a-f37f0eca0cc1)

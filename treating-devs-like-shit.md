@@ -3,7 +3,7 @@
 just take a look at this.
 
 
-# BENGIO
+# BENGIO_10
 Here's Rio treating bengio10 (custom weapon modder) like shit 
 
 ![bengio](https://github.com/user-attachments/assets/062e8f2d-4541-4a1f-927c-cd910fe8b3e4)
@@ -22,4 +22,23 @@ let's not mention that he has done this in the past.
 Rio barely even pays the guy, without him the project would most likely be dead.
 
 ![bengio3](https://github.com/user-attachments/assets/16ea7f98-1b02-475e-845e-f24b8c249a57)
+
+
+# MURILOGAMING19
+wow, the modders love being pushed to work even if they can't.
+
+![image](https://github.com/user-attachments/assets/b9930147-a31e-429f-be59-ac24a2e5a274)
+
+Murilo spent time making custom weapons for eon but rio decided not to use them at all.
+
+![image](https://github.com/user-attachments/assets/57b542d2-72f9-4e62-89b2-88f0d24fb9cd)
+
+
+# EGATOR6
+Rio is such a desperate fuck isn't he?
+
+![egator2](https://github.com/user-attachments/assets/47a536f5-3e2f-4323-bf3b-00eaa56c4d3f)
+
+![egator3](https://github.com/user-attachments/assets/460e5cc8-7709-43be-8e94-f618794005b2)
+
 

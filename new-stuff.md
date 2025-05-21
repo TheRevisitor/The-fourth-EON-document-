@@ -26,5 +26,12 @@ I'll update this if Alby finds the screenshots
 ![image](https://github.com/user-attachments/assets/eb89d328-712c-448e-a3e4-9c7d06fe0346)
 
 
+# Rio making fun of the rewind owner (PrivateUser)
+
+![image](https://github.com/user-attachments/assets/4ad9513d-86ee-4a3d-846f-4cfc2a9b32ad)
+
+![image](https://github.com/user-attachments/assets/236126d9-a969-45c7-bb49-12d07cf9f141)
+
+
 
 # THIS PAGE IS INCOMPLETE, I AM WORKING ON ADDING MORE.

@@ -15,3 +15,16 @@ Credits to @septbr
 ![image](https://github.com/user-attachments/assets/3c5cc73b-f5a5-4cbe-90e1-0d9a28e0fe7f)
 
 ![image](https://github.com/user-attachments/assets/6c316a75-2d95-4b39-9321-c1544f51ed71)
+
+
+Credits to @goofyvangoated
+
+![image](https://github.com/user-attachments/assets/9f985a1c-7d1f-44dd-a89d-37790fb6673a)
+
+![image](https://github.com/user-attachments/assets/05b174da-94ba-46be-bc85-85530be565ac)
+
+![image](https://github.com/user-attachments/assets/0cd78ecf-3a6a-4597-a2fc-505aaad4b81c)
+
+![image](https://github.com/user-attachments/assets/97d460d7-3aca-4324-935e-35e1006c336a)
+
+![image](https://github.com/user-attachments/assets/8835e539-d953-465d-aa4e-1cbc5dbb18f5)

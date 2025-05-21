@@ -4,6 +4,11 @@
 
 (I've got more that will be posted here only if I actually get permission.)
 
+?????
+
+![image](https://github.com/user-attachments/assets/606514a5-31f1-4eba-b283-d5bde4ddee71)
+
+
 # Rio allowing his staff members to make fun of people in a public vc while also allowing people to cheat in his own project: (credits to @zensterfn)
 
 https://drive.google.com/drive/folders/1vrgYaBmUl3-KWQP8Q1XsrLdnF00ssT_s?usp=sharing

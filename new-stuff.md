@@ -32,6 +32,9 @@ I'll update this if Alby finds the screenshots
 
 ![image](https://github.com/user-attachments/assets/236126d9-a969-45c7-bb49-12d07cf9f141)
 
+ALSO, tried to manipulate him into quitting his own project for eon.
+
+![image](https://github.com/user-attachments/assets/9b49e10c-d9da-41e6-a4cc-b7eda31afbd5)
 
 
 # THIS PAGE IS INCOMPLETE, I AM WORKING ON ADDING MORE.

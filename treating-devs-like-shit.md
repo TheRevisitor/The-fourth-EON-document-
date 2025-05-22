@@ -23,6 +23,8 @@ Rio barely even pays the guy, without him the project would most likely be dead.
 
 ![bengio3](https://github.com/user-attachments/assets/16ea7f98-1b02-475e-845e-f24b8c249a57)
 
+![image](https://github.com/user-attachments/assets/7c4b93f2-c397-4697-95b5-e4d81b264ff3)
+
 ALSO another interesting thing, 
 Rio tried replacing bengio with murilo on november 24 2024 because "he was lazy and provided minimum support on the paks and they didn't even work good" 
 

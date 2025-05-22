@@ -42,7 +42,7 @@ ALSO, tried to manipulate him into quitting his own project for eon.
 ![image](https://github.com/user-attachments/assets/9b49e10c-d9da-41e6-a4cc-b7eda31afbd5)
 
 
-# Rio dming people who hate on him because he can't accept the truth (credits to @zvivspa0
+# Rio dming people who hate on him because he can't accept the truth (credits to @zvivsp)
 
 ![image](https://github.com/user-attachments/assets/9fb3602e-a064-4f3e-957a-e3f3fc9480e2)
 

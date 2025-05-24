@@ -1,3 +1,7 @@
+# Silly promotion
+
+![image](https://github.com/user-attachments/assets/2a47df14-f13f-4491-a60b-18a571e3c8d1)
+
 # Rio being racist to his staff (as always)
 
 ![Screenshot_20250521-160819_Discord](https://github.com/user-attachments/assets/948f8a30-d3f3-4e9d-b901-ef6de9774255)

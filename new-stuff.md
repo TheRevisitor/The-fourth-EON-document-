@@ -1,3 +1,12 @@
+# Rio being racist to his staff (as always)
+
+![Screenshot_20250521-160819_Discord](https://github.com/user-attachments/assets/948f8a30-d3f3-4e9d-b901-ef6de9774255)
+
+![SPOILER_image](https://github.com/user-attachments/assets/4a00c965-0625-40c1-b35d-6cd29abfa0c9)
+
+![image](https://github.com/user-attachments/assets/b48e6707-6b33-4dee-9a7e-8eca24ae7645)
+
+
 # Rio is trying to manipulate Solaris Modders into abandoning the project because the project is "unique".
 
 ![egator](https://github.com/user-attachments/assets/591492fe-aa34-406b-93b9-d8ee384ef57d)

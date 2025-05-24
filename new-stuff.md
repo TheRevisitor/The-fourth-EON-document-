@@ -47,4 +47,9 @@ ALSO, tried to manipulate him into quitting his own project for eon.
 ![image](https://github.com/user-attachments/assets/9fb3602e-a064-4f3e-957a-e3f3fc9480e2)
 
 
+# Screenshots of rio and all of his past projects getting exposed (zipped up) (credits to @ogfndev and @peregrinatesoul)
+
+https://gofile.io/d/jM33uE
+
+
 # THIS PAGE IS INCOMPLETE, I AM WORKING ON ADDING MORE.

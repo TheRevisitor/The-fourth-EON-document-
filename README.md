@@ -18,6 +18,10 @@ https://github.com/Twin1dev/Eon-Document (Down)
 Made by @vexxwyd
 https://github.com/vexxwyd/Eon-Document-2/issues
 
+# eon sources:
+
+https://github.com/Nexus-FN/Momentum
+https://github.com/Milxnor/Project-Reboot-3.0
 
 EON DISCORD INVITE: 
 discord.gg/eonfn  :)
